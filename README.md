@@ -25,7 +25,7 @@ All content is structured for clarity so students can make decisions fast withou
 
 🎯 Purpose
 
-Incoming GSU freshmen—especially international students—struggle with:
+Incoming GSU freshmen,especially international students, struggle with:
 
 Not knowing where to find accurate information
 
